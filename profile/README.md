@@ -1,6 +1,6 @@
 # 🎮 Poppy Playtime Chapter 3 APK Mod Menu 1.0.25 Descarga Gratis para Android/iOS 🎮  
 
-## D[escargar ahora](https://spoo.me/Jx8lHv)
+## [Descargar ahora](https://spoo.me/Jx8lHv)
  
 **Poppy Playtime Chapter 3** regresa con una experiencia aún más aterradora y emocionante. Esta versión con **Mod Menu** ofrece acceso a características exclusivas como trucos, recursos ilimitados y una jugabilidad optimizada. Disponible tanto para **Android** como para **iOS**, esta entrega lleva la saga a un nuevo nivel, perfecta para los fanáticos de los juegos de terror y aventuras.  
 
